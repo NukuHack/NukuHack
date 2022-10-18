@@ -1,0 +1,4 @@
+-Hi, I’m @NukuHack
+-I’m interested in programming
+-I’m currently learning Japanese but Im just a begginer
+-How to reach me ... here ?
